@@ -1,2 +1,2 @@
 
-s deyil
+bosh deyil

@@ -1,1 +1,1 @@
-Bosh deyil
+Bosh deyibos deyill
